@@ -22,4 +22,4 @@
 
 点击上方任意入口，即可畅享2025年最新、最全的日本成人影片内容！
 
-<span style="display:none;">[Canonical link]  (  ）</span>
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben99999 ）</span>
